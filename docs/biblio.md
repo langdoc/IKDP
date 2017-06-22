@@ -35,7 +35,7 @@ There have been at least 8 different TV interviews about the project, but unfort
 - 2015-04-15: *Время новостей. Потомки ижемцев ищут своих родственников в Коми (part 1)*, Телеканал Юрган. URL: https://www.youtube.com/watch?t=255&v=zz_p2eTuh0A
 - 2015-04-15: *Время новостей. Потомки ижемцев ищут своих родственников в Коми (part 2)*, Телеканал Юрган. URL: https://www.youtube.com/watch?t=255&v=zz_p2eTuh0A
 - 2015-04-23: *Миян йӧз*, "Our people" program on TV channel Yurgan. URL: https://www.youtube.com/watch?v=l39tWgjIKBQ
-- 2015-06-11: *Америкаын "аляскаыд -- парка*. Komi mu newspaper, page 12.
+- 2015-06-11: *Америкаын «аляскаыд» -- парка*. Komi mu newspaper, page 12.
 - 2016-03-01: *Вочакыв: Марина Федина*, Vochakyv program on TV channel Yurgan. URL: https://www.youtube.com/watch?v=S4AnCnE_PDc
 - 2016-07-15: *Изучение культуры коми-ижемцев*, Ловозерская Правда (No. 28 (8831)), page 2.
 - 2016-09-15: *Вочакыв: Марина Федина*, "Answer" program on TV channel Yurgan. URL: https://www.youtube.com/watch?v=lSVBajp0wHA
