@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Bibliography
+title: Bibliography (2014-2016, 2017-)
 subtitle: Tracking project in research and media
 ---
 
